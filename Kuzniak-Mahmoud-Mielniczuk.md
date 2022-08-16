@@ -1,7 +1,7 @@
 Kuzniak-Mahmoud "Never Never" will be used by Sylwester Mielniczuk to experiment with presenting the music in his authors VR space.
 
 
-musical part:
+Music by:
 Thomas Mahmoud – rhythm, electronics & voice
 Bartłomiej Kuźniak – saxophones, double bass, electric basses & percussive objects
 
