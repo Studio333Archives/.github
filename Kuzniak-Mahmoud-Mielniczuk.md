@@ -10,6 +10,6 @@ Music production by Mahmoud & Kuźniak
 High Definition Mixing & Mastering by Bartłomiej Kuźniak @ Studio333.net
 
 VR design:
-Sylwester Mielniczuk
+Sylwester Mielniczuk @sylwesterdigital
 
 This work is licensed under a Creative Commons Attribution-NonCommercial-NoDerivs 3.0 Unported License.
