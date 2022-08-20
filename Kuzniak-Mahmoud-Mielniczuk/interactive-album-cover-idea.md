@@ -1,0 +1,1 @@
+I'm thinking loud - I had an idea if there may be technology which will let us make our cover of the album from snapshot of "Never, Never" metaverse? If the snapshot can be somehow animated like a canvas which is reacting for the move of the mouse on the screen or any interaction from the side of the viewer?
