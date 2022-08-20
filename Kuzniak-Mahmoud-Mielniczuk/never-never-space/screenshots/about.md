@@ -1,0 +1,1 @@
+My overall view of what we do throughout our lives creating things is that the process itself is more important than the end results. I like snapshots from different stages of development, like abandoned versions of excerpts from possible songs, like screenshots from the previous version of NeverNever.Space
